@@ -1,0 +1,1 @@
+This is the simplified way of cooking a steak. there are many other small things to make it but this just simplifies it.
