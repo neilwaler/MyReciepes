@@ -1,0 +1,1 @@
+skills to cook, a grill, a piece of raw steak, a meat mallet, something to flip the steak over(this could be a spatula or something else that will flip over the steak), some salt and pepper, a peeled lemon(Don't ask, I will explain later), a cutting board, and a plate. 
